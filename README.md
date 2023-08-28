@@ -1,2 +1,2 @@
 # INDITEX-CLONE.io
-for free hosting of ecommerce  page  ...
+![image](C:\Users\aniket bhadre\Pictures\Screenshots\Screenshot (51).png)
